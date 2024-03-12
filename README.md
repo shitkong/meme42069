@@ -1,2 +1,2 @@
-# meme42069
+# meme
 just for fun
